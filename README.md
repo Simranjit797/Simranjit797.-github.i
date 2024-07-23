@@ -1,4 +1,4 @@
-# Simranjit797.github.io
+# Simranjit7971.github.io
 ## Activity report of Student Induction Program 2024
 
 |**Day1**|On the first day we visited the gurdawara sahib of the college and attended kirtan there. Then we went to auditorium and firstly we listen to the incharge of TAC and Director of STEP GNE DR.ARVIND DHINGRA. After that we listen to the Dean student welfare DR.PARMINDER SINGH and at the last we interreacted with CoE DR.HS RAI. We again had a memorable day at the college.
