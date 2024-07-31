@@ -8,6 +8,9 @@
 
 |**Day2**| On second day of induction program we were headed to classrooms where we intereacted with peers and they shared their experience and gave basic knowledge about excel, valuable knowledge with us. After that we attended the maths class where we did chapters like derivatives and integration.
 
+![IMG-20240731-WA0003.jpg](https://github.com/user-attachments/assets/ed64cbbf-bb5d-447a-9f74-8d84508c3f54)
+
+
 |**Day3**|On the third day of induction program we firslty intereacted with DR. RANDHIR SINGH who instructed us about the github app and helped us to create github accounts. After him we listened to presitigous thoughts of Dr. PYARE LAL. Then MR. SONY GOYAL motivated us to be sucessfull in life. At last MR.PANCHAM gavs us the beautiful message.
 
 |**Day4**| On the fourth day of induction program we had some activities related to quantative aptitude and english vocabulary. On this day we also had group discussion.
