@@ -3,6 +3,8 @@
 
 |**Day1**|On the first day we visited the gurdawara sahib of the college and attended kirtan there. Then we went to auditorium and firstly we listen to the incharge of TAC and Director of STEP GNE DR.ARVIND DHINGRA. After that we listen to the Dean student welfare DR.PARMINDER SINGH and at the last we interreacted with CoE DR.HS RAI. We again had a memorable day at the college.
 
+![IMG-20240731-WA0004.jpg](https://github.com/user-attachments/assets/948cd6b2-6966-4fc2-8e7a-7a15d033e79f)
+
 
 |**Day2**| On second day of induction program we were headed to classrooms where we intereacted with peers and they shared their experience and gave basic knowledge about excel, valuable knowledge with us. After that we attended the maths class where we did chapters like derivatives and integration.
 
